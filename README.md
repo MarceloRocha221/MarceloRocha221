@@ -6,7 +6,7 @@ Tenho 21 anos, sou de Manaus (AM) e atualmente curso Engenharia da Computação 
 
 Atualmente, estou em busca de uma oportunidade de estágio na área de tecnologia, onde eu possa aplicar meus conhecimentos, aprender na prática e crescer como profissional.
 
-📫 Entre em contato comigo pelo [LinkedIn](www.linkedin.com/in/marcelo-costa-182b86300) ou e-mail: marcelofilho.mfy@gmail.com
+📫 Entre em contato comigo pelo [LinkedIn](https://www.linkedin.com/in/marcelo-costa-182b86300/) ou e-mail: marcelofilho.mfy@gmail.com
 
 Seja bem-vindo(a) ao meu perfil!
 ---
